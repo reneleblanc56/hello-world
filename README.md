@@ -1,2 +1,2 @@
 # hello-world
-All around nice guy and a Newbie 
+All around a really nice guy and an awesome individual
